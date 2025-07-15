@@ -1,1 +1,2 @@
-# [abgbocilgangbang](https://abgbocilgangbang.pages.dev)
+
+[abgbocilgangbang](https://abgbocilgangbang.pages.dev)
